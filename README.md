@@ -11,7 +11,7 @@
  
  <img src="https://files.catbox.moe/dqmmf1.png"> ⠀　˳⠀⠀⠀*txt*⠀⠀ノ⠀⠀txt .⠀ ᛝ 
 
-'txt  txt⠀⠀⠀⠀♰　⠀𓏼⠀　txt𓈒 ⠀⠀⠀<img src="img" width=25>
+'txt  txt⠀⠀⠀⠀♰　⠀𓏼⠀　txt𓈒 ⠀⠀⠀<img src="https://files.catbox.moe/v452j0.gif" width=25>
 
 𓍚　⠀    <ins>txt</ins> txt⠀⠀⏝⠀⠀txt　⠀゛ ⸝⸝ .ᐟ ⋆
 
