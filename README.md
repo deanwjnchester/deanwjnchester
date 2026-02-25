@@ -1,11 +1,11 @@
 <div align="center">
 
  
-๋࣭ ⭑⠀⠀<img src="https://i.postimg.cc/PqHP3pf0/Hello-IMG1721006655795.gif">⠀⠀⋆˚࿔
+๋࣭ ⭑⠀⠀<img src="img">⠀⠀⋆˚࿔
 
 
  
-<img src="https://files.catbox.moe/0153tg.gif" width=400>
+<img src="img" width=400>
 
 
  
