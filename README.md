@@ -1,7 +1,7 @@
 <div align="center">
 
  
-๋࣭ ⭑⠀⠀<img src="https://files.catbox.moe/sch8u7.png">⠀⠀⋆˚࿔
+๋࣭ ⭑⠀⠀<img src="https://files.catbox.moe/ks6drm.png">⠀⠀⋆˚࿔
 
 
  
