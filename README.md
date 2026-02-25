@@ -9,7 +9,7 @@
 
 
  
- <img src="https://files.catbox.moe/lxcxg6.png"> ⠀　˳⠀⠀⠀*txt*⠀⠀ノ⠀⠀txt .⠀ ᛝ 
+ <img src="https://files.catbox.moe/57ohwn.png"> ⠀　˳⠀⠀⠀*txt*⠀⠀ノ⠀⠀txt .⠀ ᛝ 
 
 'txt  txt⠀⠀⠀⠀♰　⠀𓏼⠀　txt𓈒 ⠀⠀⠀<img src="https://files.catbox.moe/n38atn.gif">
 
