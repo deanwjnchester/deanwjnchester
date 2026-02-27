@@ -11,7 +11,7 @@
  
  <img src="https://files.catbox.moe/57ohwn.png"> ⠀　˳⠀⠀⠀*He*⠀⠀ノ⠀⠀Shxe .⠀ ᛝ 
 
-'always  c+h⠀⠀⠀⠀♰　⠀𓏼⠀　at𓈒 protree⠀⠀⠀<img src="https://files.catbox.moe/n38atn.gif">
+'always  c+h⠀⠀⠀⠀♰　⠀𓏼⠀　mute𓈒 ⠀⠀⠀<img src="https://files.catbox.moe/n38atn.gif">
 
 𓍚　⠀    <ins>txt</ins> txt⠀⠀⏝⠀⠀txt　⠀゛ ⸝⸝ .ᐟ ⋆
 
