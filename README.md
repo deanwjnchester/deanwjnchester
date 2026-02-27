@@ -13,6 +13,6 @@
 
 'always  c+h⠀⠀⠀⠀♰　⠀𓏼⠀　mute𓈒 ⠀⠀⠀<img src="https://files.catbox.moe/n38atn.gif">
 
-𓍚　⠀    <ins>txt</ins> txt⠀⠀⏝⠀⠀txt　⠀゛ ⸝⸝ .ᐟ ⋆
+𓍚　⠀    <ins>sys</ins> avpd⠀⠀⏝⠀⠀amnesia　⠀゛ ⸝⸝ .ᐟ ⋆
 
 </div>
